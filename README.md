@@ -31,4 +31,4 @@
 
 立即收藏本站，享受日本AV免费在线观看，开启你的专属观影之旅！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nina4562/78882 ）</span>
